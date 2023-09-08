@@ -1,2 +1,2 @@
 # andronix-premium
-Get all benefits of Andronix Premium by using my methon or from 4PDA.
+Get all benefits of Andronix Premium by using my method or from 4PDA.
